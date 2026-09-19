@@ -1,0 +1,3 @@
+***
+As understanding increases, perceived complexity and perceived simplicity increase simultaneously. You see more details, yet can summarize them into more powerful, simple principles. The deeper you go into a subject, the more you realize how intricate it actually is. But the paradox is that this depth allows you to zoom out and find the overarching truth that connects it all. You see the massive puzzle, but you can explain it in a single sentence.
+***

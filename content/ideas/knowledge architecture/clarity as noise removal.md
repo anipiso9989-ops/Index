@@ -1,0 +1,5 @@
+***
+Information abundance creates attention scarcity. Competitive advantage comes from ignoring noise, identifying signal, and maintaining focus. In a world drowning in data, the person who can filter ruthlessly wins. It means actively curating what you let into your mind, knowing that every piece of garbage information you consume steals bandwidth from what actually matters. If you can't protect your focus, you're just reacting to everyone else's agenda.
+
+A good model increases the signal-to-noise ratio by removing what obscures reality. Clarity isn't about adding more concepts; it's about stripping away junk training volume and conceptual clutter until only the truth remains. When you get rid of the fluff, the core mechanics of how things actually work become obvious. True understanding looks like a clean slate, not a crowded map.
+***

@@ -1,0 +1,3 @@
+***
+Instead of trying to learn and minimap (see [[minimapping]]) every detail of a new subject, you focus only on the "Logical Skeleton"—the **ontology** that governs how everything else in that field works. By mastering the "grammar" of the subject first, you gain [[asymmetrical leverage]]. This allows you to ignore the massive amount of [[atomic knowledge]] that usually slows people down, drastically increasing your [[adaptation speed]]. It is the ultimate application of [[the minimum knowledge required]], at least in academic terms.
+***

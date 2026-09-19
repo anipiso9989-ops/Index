@@ -1,0 +1,3 @@
+***
+Forgetting is a filtering mechanism. Wisdom retains conclusions and lessons while discarding excess emotional baggage and unnecessary details. Your brain isn't meant to be a storage unit for every random piece of data you've ever encountered. True intelligence is knowing what to let go of so you can keep the core principles lightweight and accessible. You want the leverage of the lesson without the dead weight of the noise.
+***

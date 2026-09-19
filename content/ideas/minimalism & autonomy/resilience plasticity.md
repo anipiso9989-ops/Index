@@ -1,0 +1,3 @@
+***
+Resilience Plasticity is the practice of using emotional or mental friction as a deliberate tool to rewire your brain. While [[metaplasticity]] is usually about learning skills, this applies that concept to your character. By staying in [[the optimal challenge zone]] during difficult times, you treat [[the dichotomy of suffering]] as a form of [[adaptive overload]]. You aren't just "getting through" a hard time; you are strategically using [[reality-demanded friction]] to increase your [[judgement sovereignty]].
+***

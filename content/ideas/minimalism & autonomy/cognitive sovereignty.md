@@ -1,0 +1,3 @@
+***
+Protect independent thinking against technological pressure. Read deeply, think before reacting, spend time offline, and protect attention aggressively. Algorithms are literally designed to hijack your brain chemistry and dictate what you care about. Maintaining cognitive sovereignty means building a wall around your mind. It’s about logging off, sitting with a book, and giving your thoughts the space to develop without the constant background noise of the internet.
+***

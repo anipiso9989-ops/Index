@@ -1,0 +1,2 @@
+***
+Human capability has no hard biological "ceiling," only a **"speed limit"** determined by your operating system’s current state. This speed limit is governed by signal clarity, metabolic health (inflammation), and how well you follow the rules of your nervous system. By improving your training "diet" and metabolic environment, you can **raise this speed limit**, allowing you to master in weeks what takes others years.
